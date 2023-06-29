@@ -1,2 +1,2 @@
-Maria Barbara Perez Marin - Adriana Romero
+Maria Barbara Perez Marin - Adriana Romero - Karen Bogota
 
